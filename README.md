@@ -1,4 +1,4 @@
-# Iván
+# Iván Fridman 🌌
 
 **BSc in Astrophysics** — Universidad Técnica Federico Santa María, Chile
 
